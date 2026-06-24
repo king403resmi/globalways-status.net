@@ -1,0 +1,1 @@
+# globalways-status.net
